@@ -1,1 +1,2 @@
-<img src="https://file.garden/ad7E6gx5M13uwG93/HBorOO-aEAAlV_p-Photoroom.png" width="800" align="middle">
+<p align="center">
+<img src="https://files.catbox.moe/cysukz.png" width="300" align="middle">
